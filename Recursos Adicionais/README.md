@@ -1,4 +1,4 @@
-
+![Screenshot 2024-01-16 16 23 30](https://github.com/alinemello29/pipefy/assets/109696840/2cf72bbe-d7d4-49e9-b0a1-6275240b978a)
 
 
 
